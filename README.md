@@ -1,6 +1,6 @@
 + **Email:** zyj@zhayujie.com
 
-+ **Wecaht:** zhayujie_com
++ **Wechat:** zhayujie_com
 
 + **Blog:** <https://zhayujie.com>
 
